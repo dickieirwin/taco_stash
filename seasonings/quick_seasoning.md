@@ -1,7 +1,7 @@
 
 ##Quick Seasoning
 
-Quick and easy, just add to browned beef.
+Quick and easy good to add to browned beef.
 
 ###Ingreditents
 
